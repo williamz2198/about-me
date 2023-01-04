@@ -17,15 +17,17 @@
 * #### GAMES I COMMONLY PLAY:
   * League of Legends
   * TeamFight Tactics
-  * Genshin Impact
-* #### GAMES I PLAY BUT NOT THAT OFTEN
   * ROBLOX
+    * Bee Swarm
+* #### GAMES I PLAY BUT NOT THAT OFTEN
+  * Genshin Impact
   * Brawl Stars
   * Minecraft
 * #### REAL HOBBIES:
   * Draw
   * Watch YouTube
   * Talk to friends on DISCORD
+    * Yu especially
 
 Currently on _December 15, 2022_, my brain is about to explode. I would **LOVE** to speedrun the next week so winter break can come faster. I can't wait to not worry about school for a week and do whatever I want.
 
